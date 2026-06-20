@@ -1,2 +1,2 @@
 # The-new-era-of-coming
-again you either
+good enough to see 
